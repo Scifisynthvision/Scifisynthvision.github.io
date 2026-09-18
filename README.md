@@ -1,1 +1,0 @@
-# Scifisynthvision.github.io
